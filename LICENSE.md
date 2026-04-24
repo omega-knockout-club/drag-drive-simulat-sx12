@@ -1,4 +1,4 @@
-
+rare Scripts for murderers vs sheriffs 2 is the best murderers vs sheriffs 2 Script, featuring instant win and no cooldown. Safe and powerful for all
 
 
 
